@@ -8,7 +8,7 @@
 <p align="center"> $\color{LightPink} slowㅤdamageㅤ,ㅤalien ㅤstageㅤ,ㅤmilgramㅤ,ㅤlamento$
 <p align="center"> $\color{Pink} ㅤdmmdㅤ,ㅤlobotomyㅤcorporationㅤ,ㅤadwd$
 <p align="center"> $\color{MistyRose} ㅤoneshotㅤ,ㅤgreatㅤgodㅤgroveㅤ,ㅤlibraryㅤofㅤruina$
-<p align="center"> $\color{White} ㅤ ㅤlimbusㅤcompanyㅤ.$
+<p align="center"> $\color{White} ㅤ ㅤlimbusㅤcompanyㅤ,ㅤservampㅤ,ㅤhellsingㅤ.$
 <p align="center"><img width="99" height="55" alt="1000086513" src="https://github.com/user-attachments/assets/d30c403b-019d-486b-b294-caccc376e72d" />
 <p align="center"> $\color{DeepPink} Musicㅤ:$
 <p align="center"> $\color{LightPink} mcrㅤ,ㅤpatdㅤ,ㅤmotherㅤmotherㅤ,ㅤandㅤone$
