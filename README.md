@@ -2,7 +2,7 @@
 <img width="1280" height="656" alt="1000086502" src="https://github.com/user-attachments/assets/a0a060a8-e15d-48d1-a6b9-40ba1e2bb51d" />
 <p align="center"><img width="20" height="20" alt="1000086499" src="https://github.com/user-attachments/assets/f740ff3b-e760-4a50-8496-72ff83973afb" />
 <p align="center"> $\color{HotPink} helloㅤ!$
-<p align="center"><img width="101" height="57" alt="1000086498" src="https://github.com/user-attachments/assets/1bbab063-1122-4a30-a6e5-4ddffdd19200" />
+<p align="center"><img width="99" height="56" alt="1000071355" src="https://github.com/user-attachments/assets/0d29160a-f64e-4791-8532-c660eb8fc1e9" />
 <p align="center"> $\color{Pink} sinㅤ.ㅤanyㅤpronouns$
 <p align="center"> $\color{HotPink} mainㅤfandomsㅤ:$
 <p align="center"> $\color{LightPink} slowㅤdamageㅤ,ㅤalien ㅤstageㅤ,ㅤmilgramㅤ,ㅤlamento$
