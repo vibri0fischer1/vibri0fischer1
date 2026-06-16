@@ -3,7 +3,7 @@
 ## <p align="center">hello! my nickname is sin. 
 
 ### <p align="center">I use any pronouns. Im omnisexual and non-binary.
-<img width="800" height="800" alt="1000086972" src="https://github.com/user-attachments/assets/4735b2f6-bb69-4336-942b-02a73971d98e" />
+<p align="center"><img width="800" height="800" alt="1000086972" src="https://github.com/user-attachments/assets/4735b2f6-bb69-4336-942b-02a73971d98e" />
 
 ### <p align="center"> rus / eng. melphleg. sp6so4sp9, 6w7, infp, elfv, rluei, iei.
 
