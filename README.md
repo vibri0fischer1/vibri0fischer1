@@ -7,7 +7,7 @@
 
 ### <p align="center"> rus / eng. melphleg. sp6so4sp9, 6w7, infp, elfv, rluei, iei.
 
-<p align="center"> my main fandoms are visual novels, hoyo games, project moon games, many roblox games, great god grove, cult of the lamb, jsab and etc!
+<p align="center"> my main fandoms are visual novels ( mostly bl and yandere novels ), hoyo games, project moon games, many roblox games, great god grove, cult of the lamb, jsab and etc!
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/7ae1f007-d428-42c9-8c0b-818431484795" />
   
  ## <p align="center"> If you wanna contact with me, please be careful. I have bad social anxiety, and Im also an emotionally unstable person. But! despite all this, I'm still happy to make new friends. I rarely take the initiative in communication because of fear, just give me some time to get used to you!
