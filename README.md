@@ -9,7 +9,8 @@
 
 <p align="center"> my main fandoms are visual novels, hoyo games, project moon games, many roblox games, great god grove, cult of the lamb, jsab and etc!
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/7ae1f007-d428-42c9-8c0b-818431484795" />
-<p align="center"> If you wanna contact with me, please be careful. I have bad social anxiety, and Im also an emotionally unstable person. But! despite all this, I'm still happy to make new friends. I rarely take the initiative in communication because of fear, just give me some time to get used to you!
+  
+ ## <p align="center"> If you wanna contact with me, please be careful. I have bad social anxiety, and Im also an emotionally unstable person. But! despite all this, I'm still happy to make new friends. I rarely take the initiative in communication because of fear, just give me some time to get used to you!
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/74a74e5a-ae02-492a-8c0c-f96c4e6c30ec" />
 <p align="center"> 𝗗𝗡𝗜 : basic, manipulators, if u support problematic persons, very weird or freaky jokes.
   
