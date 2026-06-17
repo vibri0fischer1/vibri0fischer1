@@ -12,7 +12,7 @@
   
  ## <p align="center"> If you wanna contact with me, please be careful. I have bad social anxiety, and Im also an emotionally unstable person. But! despite all this, I'm still happy to make new friends. I rarely take the initiative in communication because of fear, just give me some time to get used to you!
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/74a74e5a-ae02-492a-8c0c-f96c4e6c30ec" />
-<p align="center"> 𝗗𝗡𝗜 : basic, manipulators, if u support problematic persons, very weird or freaky jokes.
+<p align="center"> 𝗗𝗡𝗜 : manipulators, very weird or freaky jokes. I'm okay with weird pairings and problematic dynamics, but don't force it on me.
   
 ### <p align="center"> That's all! feel free to interact with me! I don't bite and I'm actually a very kind person. ˆ𐃷ˆ
 
