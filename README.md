@@ -1,20 +1,22 @@
 <img width="1075" height="325" alt="1000086982" src="https://github.com/user-attachments/assets/cbb5357f-7ff0-4757-a3ec-38c7c93bcadb" />
 
-## <p align="center">hello! my nickname is sin. 
+## <p align="center">hello ! my nickname is sin .ᐟ.ᐟ
 
-### <p align="center">I use any pronouns. Im omnisexual and non-binary.
+### <p align="center">. ♱ I use any pronouns . <img width="37" height="21" alt="1000087060" src="https://github.com/user-attachments/assets/e6a689df-9d09-4bb7-926b-f11510835a5c" />
+
 <p align="center"><img width="800" height="800" alt="1000086972" src="https://github.com/user-attachments/assets/4735b2f6-bb69-4336-942b-02a73971d98e" />
 
-### <p align="center"> rus / eng. melphleg. sp6so4sp9, 6w7, infp, elfv, rluei, iei.
+### <p align="center"> ᛝ rus / eng . melphleg . sp/so649 , infp , elfv , rluei , iei <img width="20" height="20" alt="1000087064" src="https://github.com/user-attachments/assets/5f76cbda-1af9-4dda-b414-c6ae3ea2809c" /> ˎˊ˗
 
-<p align="center"> my main fandoms are visual novels ( mostly bl and yandere novels ), hoyo games, project moon games, many roblox games, great god grove, cult of the lamb, jsab and etc!
+<p align="center"> ⋮ my main fandoms : slow damage , sweet pool , lamento , dmmd , togainu no chi , 14dwy , You And Me And Her: A Love Story , hoyo games ( mostly hsr ) , project moon games ( mostly lob corp ) , many roblox games ( mostly dream game, tds, dandys world, phighting ), great god grove , cult of the lamb , jsab , unstable universe , tshd , lost in the cloud , alien stage , yume nikki , zeno remake and etc . . . <img width="20" height="20" alt="1000087063" src="https://github.com/user-attachments/assets/b369995d-dd0b-488e-b406-406c7e13376a" />
+
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/7ae1f007-d428-42c9-8c0b-818431484795" />
   
- ## <p align="center"> If you wanna contact with me, please be careful. I have bad social anxiety, and Im also an emotionally unstable person. But! despite all this, I'm still happy to make new friends. I rarely take the initiative in communication because of fear, just give me some time to get used to you!
+ ### <p align="center"> ੭﹕﹒I have bad social anxiety and its hard for me to communicate with people without getting nervous . But despite all this, Im still happy to make new friends . <img width="20" height="20" alt="1000087062" src="https://github.com/user-attachments/assets/5162f595-9b9b-4276-805d-5d59e6137391" />
+
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/74a74e5a-ae02-492a-8c0c-f96c4e6c30ec" />
-<p align="center"> 𝗗𝗡𝗜 : manipulators, very weird or freaky jokes.
   
-### <p align="center"> That's all! feel free to interact with me! I don't bite and I'm actually a very kind person. ˆ𐃷ˆ
+### <p align="center"> ۫ ׅ <img width="20" height="20" alt="1000087065" src="https://github.com/user-attachments/assets/5b5b0786-80c6-4f99-a151-d905b644a272" /> That ' s all . feel free to interact with me ! I don't bite and Im actually a very kind person . ˆ𐃷ˆ
 
 <p align="center"> <img width="540" height="110" alt="1000086990" src="https://github.com/user-attachments/assets/87385efb-002f-4b3e-a971-d8ef9be4b7b5" />
 
