@@ -1,6 +1,6 @@
 <img width="1075" height="325" alt="1000086982" src="https://github.com/user-attachments/assets/cbb5357f-7ff0-4757-a3ec-38c7c93bcadb" />
 
-## <p align="center">hello ! my nickname is sin .ᐟ.ᐟ
+## <p align="center">hello ! my nickname is choco .ᐟ.ᐟ
 
 ### <p align="center">. ♱ I use any pronouns . <img width="37" height="21" alt="1000087060" src="https://github.com/user-attachments/assets/e6a689df-9d09-4bb7-926b-f11510835a5c" />
 
