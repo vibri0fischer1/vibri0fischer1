@@ -8,7 +8,7 @@
 
 ### <p align="center"> ᛝ rus / eng . melphleg . sp/so649 , 6w7 , iei , rluei , lefv , infp . <img width="20" height="20" alt="1000087064" src="https://github.com/user-attachments/assets/5f76cbda-1af9-4dda-b414-c6ae3ea2809c" /> ˎˊ˗
 
-<p align="center"> ⋮ my main fandoms : slow damage , sweet pool , lamento , dmmd , togainu no chi , 14dwy , You And Me And Her: A Love Story , hoyo games ( mostly hsr ) , project moon games ( mostly lob corp ) , many roblox games ( mostly dream game, tds, dandys world, phighting ), great god grove , cult of the lamb , jsab , unstable universe , tshd , lost in the cloud , alien stage , yume nikki , zeno remake and etc . . . <img width="20" height="20" alt="1000087063" src="https://github.com/user-attachments/assets/b369995d-dd0b-488e-b406-406c7e13376a" />
+<p align="center"> ⋮ my main fandoms : sweet pool , lamento , dmmd , togainu no chi , 14dwy , hoyo games ( mostly hsr ) , project moon games ( mostly lob corp and LoR ) , many roblox games ( mostly dream game, phighting ), great god grove , cult of the lamb , jsab , unstable universe , tshd , lost in the cloud , alien stage , yume nikki , zeno remake , nu : c , room no.9 and etc ! . . <img width="20" height="20" alt="1000087063" src="https://github.com/user-attachments/assets/b369995d-dd0b-488e-b406-406c7e13376a" />
 
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/7ae1f007-d428-42c9-8c0b-818431484795" />
   
