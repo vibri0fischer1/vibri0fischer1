@@ -6,13 +6,13 @@
 
 <p align="center"><img width="800" height="800" alt="1000086972" src="https://github.com/user-attachments/assets/4735b2f6-bb69-4336-942b-02a73971d98e" />
 
-### <p align="center"> ᛝ rus / eng . melphleg . sp/so649 , 6w7 , iei , rluei , lefv , infp . <img width="20" height="20" alt="1000087064" src="https://github.com/user-attachments/assets/5f76cbda-1af9-4dda-b414-c6ae3ea2809c" /> ˎˊ˗
+### <p align="center"> ᛝ rus / eng . melphleg . sp/so649 , 6w7 , lefv , infp . <img width="20" height="20" alt="1000087064" src="https://github.com/user-attachments/assets/5f76cbda-1af9-4dda-b414-c6ae3ea2809c" /> ˎˊ˗
 
-<p align="center"> ⋮ my main fandoms : sweet pool , lamento , dmmd , togainu no chi , 14dwy , hoyo games ( mostly hsr ) , project moon games ( mostly lob corp and LoR ) , many roblox games ( mostly dream game, phighting ), great god grove , cult of the lamb , jsab , unstable universe , tshd , lost in the cloud , alien stage , yume nikki , zeno remake , nu : c , room no.9 and etc ! . . <img width="20" height="20" alt="1000087063" src="https://github.com/user-attachments/assets/b369995d-dd0b-488e-b406-406c7e13376a" />
+<p align="center"> ⋮ my main fandoms : sweet pool , lamento , dmmd , togainu no chi , 14dwy , hoyo games ( mostly hsr ) , project moon games ( mostly lob corp and LoR ) , many roblox games ( mostly dream game, phighting ), great god grove , cult of the lamb , jsab , unstable universe , alien stage , yume nikki , zeno remake , nu : c  and etc ! . . <img width="20" height="20" alt="1000087063" src="https://github.com/user-attachments/assets/b369995d-dd0b-488e-b406-406c7e13376a" />
 
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/7ae1f007-d428-42c9-8c0b-818431484795" />
   
- ### <p align="center"> ੭﹕﹒I have bad social anxiety and its hard for me to communicate with people without getting nervous . But despite all this, Im still happy to make new friends . <img width="20" height="20" alt="1000087062" src="https://github.com/user-attachments/assets/5162f595-9b9b-4276-805d-5d59e6137391" />
+ ### <p align="center"> ੭﹕﹒I have bad social anxiety and its hard for me to communicate with people without getting nervous . But despite all this, Im still happy to make new friends ! <img width="20" height="20" alt="1000087062" src="https://github.com/user-attachments/assets/5162f595-9b9b-4276-805d-5d59e6137391" />
 
 <img width="1280" height="135" alt="1000086980" src="https://github.com/user-attachments/assets/74a74e5a-ae02-492a-8c0c-f96c4e6c30ec" />
   
