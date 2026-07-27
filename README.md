@@ -6,7 +6,7 @@
 <p align="center"><img width="735" height="455" alt="1000089602" src="https://github.com/user-attachments/assets/9439dc38-0c7b-4eb7-83a5-f7b1762cb3d8" />
 
 
-### <p align="center"> ᛝ rus / eng . melphleg . sp/so649  ˎˊ˗
+### <p align="center"> ᛝ rus / eng . melphleg . sp/sx692  ˎˊ˗
 
 <p align="center"> ⋮ my main interests : n + c novels , 14dwy , hsr , LoR , roblox ( dream game , webseries ) , great god grove , cotl , jsab , unstable universe , alien stage , yume nikki , zeno remake , nu : c  and etc .
 
