@@ -18,4 +18,4 @@
  ### <p align="center"> ۫ ׅ <img width="20" height="20" alt="1000087065" src="https://github.com/user-attachments/assets/5b5b0786-80c6-4f99-a151-d905b644a272" /> That ' s all. feel free to interact with me .
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=vibri0fischer1&label=paranoia&style=for-the-badge&abbreviated&color=C0C0C0) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=vibri0fischer1&label=paranoia&style=for-the-badge&abbreviated&color=C0C0C0) 
