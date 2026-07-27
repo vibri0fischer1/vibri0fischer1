@@ -3,7 +3,7 @@
 
 ### <p align="center">. ♱ I use any pronouns . <img width="37" height="21" alt="1000087060" src="https://github.com/user-attachments/assets/e6a689df-9d09-4bb7-926b-f11510835a5c" />
 
-<img width="735" height="455" alt="1000089602" src="https://github.com/user-attachments/assets/9439dc38-0c7b-4eb7-83a5-f7b1762cb3d8" />
+<p align="center"><img width="735" height="455" alt="1000089602" src="https://github.com/user-attachments/assets/9439dc38-0c7b-4eb7-83a5-f7b1762cb3d8" />
 
 
 ### <p align="center"> ᛝ rus / eng . melphleg . sp/so649 , 6w7 , lefv , infp . <img width="20" height="20" alt="1000087064" src="https://github.com/user-attachments/assets/5f76cbda-1af9-4dda-b414-c6ae3ea2809c" /> ˎˊ˗
